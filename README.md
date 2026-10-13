@@ -1,0 +1,2 @@
+# salomoshxona
+salom teacher
